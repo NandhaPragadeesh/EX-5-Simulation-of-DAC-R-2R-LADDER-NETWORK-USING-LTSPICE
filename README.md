@@ -30,7 +30,8 @@
 ---
 ## OUT PUT WAVEFORM AND DISCUSSION 
 
-![WhatsApp Image 2025-11-28 at 8 59 00 PM](https://github.com/user-attachments/assets/85c42757-241e-4ab6-a8c4-800ad83e8915)
+![WhatsApp Image 2025-11-28 at 9 01 51 PM](https://github.com/user-attachments/assets/8955ef59-e320-4b59-88b7-a8de87690cf6)
+
 
 ---
 ##RESULT:
